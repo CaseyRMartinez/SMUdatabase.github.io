@@ -1,1 +1,0 @@
-# SMUdatabase.github.io
